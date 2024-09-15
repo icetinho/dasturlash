@@ -1,3 +1,1 @@
 # dasturlash
-# dasturlash
-# dasturlash
